@@ -5,8 +5,6 @@ Code for unexpected events ('hacking reality') and living life poetic way
 
 I was a part of Code Societies – School for Poetic Computation session in New York this summer. I was exploring coding and how to make it poetic and socially meaningful / coding and working publicly and together and finally coding for and in life, exploring social codes, interactions and behaviours and hack the reality to discover poetics that are embeded in life waiting sometimes right behind the corner for those who wish to make them their life.
 
-![alt text](https://raw.githubusercontent.com/username/projectname/branch/path/to/img.png)
-
 ![](1.JPG)
 ![](4.jpg)
 ![](8.jpg)
