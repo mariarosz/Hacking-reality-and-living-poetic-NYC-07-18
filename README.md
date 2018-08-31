@@ -24,9 +24,8 @@ New York is full of people walking their own way. My way at that time was the sc
 
 # Hack-a-day
 
-***
-
 ![](2.jpg) 
+
 I  was walking and I saw a man trying to fasten a bracelet on his wrist. 
 <pre><code>I asked if he needs help.</code></pre>
 "No" he replied. But then he said that he found today two bracelets on the sidewalk, he took that second one and gave it to me. I didn't want to take it, but he insisted on that. We were walking and talking. He told me that he was homeless for 5 years, but he found the way to God or that was God who found him. He got a job and started to fight his alcohol addiction. Now he's doing well. He recently met with his son who lives in New Jersey. He didn't want to get anything from me, but he asked for prayer. Later on I discovered on the bracelet there's a sign:
@@ -36,6 +35,7 @@ I  was walking and I saw a man trying to fasten a bracelet on his wrist.
 ***
 
 ![](11.jpg)
+
 I  went to ferry stop on East River and the machine didn't print my ticket. I've tried again with the other one and then those two men came speaking Polish.
 <pre><code>I talked to them happy to hear familiar speech.</code></pre>
 They were happy to meet me too. They can't speak English. They decided to go with me. We spend half of the day together. They went home earlier because the day after they were staring work early morning. We met again – once we went to Times Square and the second time to Dumbo and Brooklyn Bridge. Their work is very hard and all day long. But as one of them wrote me – I made them feel more secure and encourage them to explore the city.
@@ -46,6 +46,7 @@ They were happy to meet me too. They can't speak English. They decided to go wit
 
 
 ![](3.jpg)
+
 Classes ended late but I cannot go straight back home.
 I felt like I need some extra time to deal with all the thoughts brewing in my mind. 
 <pre><code>Walk is always the way for me.</code></pre>
@@ -64,6 +65,7 @@ The second time we've been to Babycastles. He enjoyed it. He has a talent for te
 ***
 
 ![](6.jpg) 
+
 There was a man sitting on the chair on the sidewalk.
 <pre><code>I stopped 
 and I asked:
@@ -73,6 +75,7 @@ He was thinking for a while and then with a smile on his face he stood up, lifte
 *** 
 
 ![](7.jpg) 
+
 There was a man cleaning the trash can with a hose.
 <pre><code>I took a small plastic box from my bag, stoped by and open the lid.</code></pre>
 The man immediatelly turned the stream of the water so it became very, very tiny and he poured the water into the box. I turned the lid on, thanked him and went on.
