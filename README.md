@@ -55,7 +55,8 @@ So I was walking around my neighborhood. I stoped by PUPUSERIA. I was wondering 
 
 ***
 
-![](5.jpg) 
+![](5.jpg)
+
 That was the 4th of July and I was walking alone and suddently I came with the idea to go to the beach. I wondered I would have a good time if I went there alone. But I took a train. There was one man standing there alone too.
 <pre><code>I simply ask him for the way to the beach to make sure I was on the right track.</code></pre>
 Then we start talking and went together to the beach, met his friends there and spend there some more time with them.
